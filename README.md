@@ -1,5 +1,6 @@
 # 💫 About Me:
 Sinh viên Công nghệ thông tin
+Là numberone của ROSÉ
 
 
 ## 🌐 Socials:
